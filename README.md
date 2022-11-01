@@ -1,8 +1,10 @@
 # my-storys
 
-#### beste mensen die dit lezen ik had vandaag bo o het was oke te doen
-#### ik ging best oke met het galgje les o en bo docent sorry maar ik ben slecht met namen dus ik hoop dat #### u hier onder wil schrijven 
+#### beste mensen, jullie gaan zometeen beginnen aan een quize.
+#### In deze quize gaan jullie allerlij vragen beantwoorden.
+#### maar lees goed want afhankelijk hoe je antwoord kan het eind ook veranderen.
+#### hierbij wens ik je veel succes met het verhaal
 
 #### vriendelijke groetjes keith  kolakowski
 
-#### 1 week is geweest ik schrijf dit en ik ben all klaar met me vlowchart
+#### tijd besteed 1 dag en 12 uur
